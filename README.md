@@ -1,6 +1,5 @@
 # GlanzJourney
 
-<a href="https://drive.google.com/file/d/1tLLkiPx7ltjI0kvNCOrBHWlboDtQ1-cb/view?usp=drive_link">Click</a>
 
 
 # Novenas Prayer that I made
