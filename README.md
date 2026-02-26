@@ -4,7 +4,7 @@
 
 <a href="https://drive.google.com/file/d/1KGwbcyZ9swciEMfE_o3W5_4DRIotzDfR/view?usp=sharing">GlanzJourney 2025</a>
 
-<a href="https://drive.google.com/file/d/1crBSSDnBHz4TSLF7k3I5nVHCGIs4A8jg/view?usp=sharing">GlanzJourney 2026</a>
+<a href="https://drive.google.com/file/d/1H4RlrGC_ei-U4en7bnFTDh8I4x_63QZM/view?usp=sharing">GlanzJourney 2026</a>
 
 # Blog
 
